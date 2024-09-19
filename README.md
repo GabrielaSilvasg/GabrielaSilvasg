@@ -10,3 +10,6 @@ Você pode entrar em contato comigo 📫
 00001106309091sp@al.educacao.sp.gov.br
 
 @alurastartestudante
+
+
+![](https://media1.tenor.com/m/mwXBI6CY9l8AAAAC/cat-shocked.gif)
